@@ -5,7 +5,7 @@ I'm emm a student, a man full of infinite love for the unknown。
 
 - 🔭 I’m currently studying on Qindao
 - 🌱 I’m currently learning Matlab/Android ...
-- 💬 Learn about my blog: https://yumik.top/ (Welcome to my blog！😘)
+- 💬 Learn about my blog: https://blog.yumik.top/ (Welcome to my blog！😘)
 - 📫 My E-mail: 1442198779@qq.com
 - 🔧 My Power Tools:
 
